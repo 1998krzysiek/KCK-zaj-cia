@@ -1,0 +1,2 @@
+# KCK-zaj-cia
+REPOZYTORIUM KCK
